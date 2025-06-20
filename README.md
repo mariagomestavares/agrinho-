@@ -1,2 +1,2 @@
 # Agrinho turma B
-todas a sfotos tirada do google
+todas as fotos tirada do google
